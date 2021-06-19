@@ -2,5 +2,5 @@
 
 Esta serie de libros cuentan la historia de un hacker excepcional.
 
-**Miguel Ángel**
+**Miguel Ángel**, Larry Plotter fan
 
